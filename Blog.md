@@ -1,1 +1,2 @@
-[*A/S/L* by Jeanne Thornton](% link Blog/ASL\ by\ Jeanne\ Thornton.md)
+# Blog
+[*A/S/L* by Jeanne Thornton](% link Blog/ASL.md)
