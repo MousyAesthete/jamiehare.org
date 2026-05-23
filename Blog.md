@@ -1,2 +1,2 @@
 # Blog
-[*A/S/L* by Jeanne Thornton](% post_url Blog/ASL %)
+[*A/S/L* by Jeanne Thornton](% post_url /Blog/ASL %)
