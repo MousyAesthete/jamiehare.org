@@ -1,0 +1,6 @@
+# *Little Fish* by Casey Plett
+2025-06-01
+
+Wendy is a thirty-year-old trans woman in Winnipeg, Canada. When she discovers that her late Mennonite grandfather may have also been trans, it prompts a hunt to discover the truth about her family's past. Casey Plett's Lambda Literary Award winning debut novel depicts the everyday lives of trans women in a provincial city, exploring sometimes difficult themes such as precarious employment, alcoholism, and sex work. For decades, literary accounts of transgender life have focused on the physical, mental, and social experience of transition and sought to promote acceptance through relatable, sympathetic protagonists. _Little Fish_ offers a portrayal of trans life that does not cater to the cisgender gaze. Plett does not seek to provide "Good Representation" of the trans community. Rather, she offers a compelling account of the challenges and joys of living our lives in the open.
+
+(Originally published by [DeKalb County Public Library](https://dekalblibrary.org/news/staff-picks-june-2025))

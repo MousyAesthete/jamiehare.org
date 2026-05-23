@@ -1,0 +1,6 @@
+# *The AI Con: How to Fight Big Tech's Hype and Create the Future We Want* by Emily M. Bender and Alex Hanna
+2025-10-01
+
+Are you suspicious of the constant hype around artificial intelligence but can't quite put your finger on why? _The AI Con_ by Emily M. Bender and Alex Hanna reveals "AI" to be little more than a marketing term glossing over the differences between a variety of technologies, some useful, others demonstrably harmful. They argue that AI boosters and AI doomers represent two sides of the same coin, both hyping imagined futures while ignoring present-day impacts, and these impacts are serious, ranging from artists losing work even as their art is used to train the models that are replacing them to low quality, unreliable synthetic text overwhelming the web with AI slop. _The AI Con_ concludes with ways to fight back against big tech's inhuman agenda, including using one of the most ubiquitous sources of vetted, reliable information: your public library.
+
+(Originally published by [DeKalb County Public Library](https://dekalblibrary.org/news/staff-picks-october-2025))
