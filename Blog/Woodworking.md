@@ -1,4 +1,0 @@
-# *Woodworking* by Emily St. James
-2026-05-23
-
-It's 2016, and Erica is a thirty-five-year-old, recently divorced, closetted trans woman and English teacher living in small-town South Dakota. She doesn't know any other trans people--except for her seventeen-year-old student, Abigail. In this novel, _Yellowjackets_-writer Emily St. James explores an unlikely friendship, small-town community, and the power of living as your true self. This book's title refers to blending into the woodwork, that is to say living as one's affirmed gender while hiding one's past. It's a tempting strategy in a hostile world, but it comes with costs. This novel explores both the temptation and the costs with clarity and empathy. If you've ever felt a desire to hide from the world--or from yourself--_Woodworking_ is for you.
