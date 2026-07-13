@@ -3,3 +3,4 @@ I'm Jamie Hare. I'm a library worker, library student, former professional socia
 
 - [Blog]({% link Blog.md%})
 - [Bluesky](https://bsky.app/profile/jamiehare.org)
+- <a rel="me" href="https://theatl.social/@MousyAesthete">Mastodon</a>
